@@ -2,7 +2,7 @@
 ## 📚 Turma
 **ESOFT7S-N-A**
 
-## 👩‍💻 Alunos
+## 👩‍💻 Alunas
 
 - **Daniely Suemi Mikami**  
   RA: 23175979-2  
